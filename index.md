@@ -1,5 +1,6 @@
 ---
-title: Welcome to All-Spanish
+title: X Inmobiliaria 爱可思房产
 ---
 
-ADD CONTENT .........
+我们为您提供西班牙房产投资、贷款申请、投后管理等服务，并为投资者提供后续的移民、子女入学等服务。
+
