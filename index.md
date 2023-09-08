@@ -28,7 +28,7 @@ title: X Inmobiliaria 爱可思房产
 
 **移民服务:** 我们可办理投资移民、非盈利移民、数字游民签证等。我们拥有经验丰富的移民律师，会根据您的情况和需求提供最佳移民方案，并全程陪伴您办理。
 
-**Servicios migratorios ** Podemos procesar visados de inversión, visados no lucrativos, y visados para nómadas digitales, etc. Contamos con abogados migratorios con amplia experiencia, y ofrecemos la mejor estrategia migratoria según sus necesidades, acompañándole durante todo el proceso.
+**Servicios migratorios** Gestionamos visados de inversión, visados no lucrativos, y visados para nómadas digitales, etc. Contamos con abogados migratorios con amplia experiencia, y ofrecemos la mejor estrategia migratoria según sus necesidades, acompañándole durante todo el proceso.
 
 **子女教育规划:** 如果您有子女需要在西班牙就读，我们可协助申请入学，确保您的子女获得最佳的教育机会。
 
