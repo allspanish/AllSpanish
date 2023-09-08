@@ -6,6 +6,7 @@ title: X Inmobiliaria 爱可思房产
 
 ¡Bienvenidos a X-Inmobiliaria! Estamos ubicados en Santiago de Compostela,España, especializados en inversión inmobiliaria en España y servicios migratorios. Nuestro equipo tiene más de una década de experiencia en inversión y migración en España, y puede ayudar a los inversores con los trámites de inmigración, así como ofrecer apoyo continuo para su vida en extranjero y la planificación educativa para sus hijos.
 
+![Santiago de Compostela](IMG_9735 2.jpg)
 
 **房产投资:** 我们深入了解西班牙房地产市场，为您寻找最佳投资机会，确保您的投资获得最大回报。无论您是想购买公寓、别墅还是商业地产，我们都会根据您的预算和目标，为您找到最适合的物业。
 
