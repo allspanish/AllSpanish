@@ -2,7 +2,7 @@
 title: X Inmobiliaria 爱可思房产
 ---
 
-欢迎来到爱可思房产！我们位于西班牙历史名城圣地亚哥，专注于西班牙房产投资和移民服务。我们的团队拥有十余年西班牙投资和移民经验，可为您办理西班牙房产投资、投后管理、租赁、西班牙移民和留学等业务。
+欢迎来到爱可思房产！我们位于西班牙历史名城圣地亚哥。我们的团队拥有十余年西班牙投资置业和移民经验，可为您办理西班牙房产投资、投后管理、租赁、西班牙移民和留学等业务。
 
 ¡Bienvenidos a X-Inmobiliaria! Ubicadmos en Santiago de Compostela,España, especializados en inversión inmobiliaria en España y servicios migratorios. Le ofrecemos un servicio integral de propiedades e inmigración en España:
 
