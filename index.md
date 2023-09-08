@@ -15,13 +15,13 @@ title: X Inmobiliaria 爱可思房产
 
 ![key](https://github.com/allspanish/X-Inmobiliaria/raw/main/images/infinite-views-XkpuSnWMQu4-unsplash.jpg)
 
-**投后管理:** 您投资房产后可托管，我们可提供租赁管理、维护和保险等，确保您的房产一直保持卓越状态和定期获得投资回报。
+**投后管理:** 您投资房产后可托管，我们提供租赁管理、维护和保险等，确保您的房产一直保持卓越状态和定期获得投资回报。
 
 **Gestión post-inversión** Ofrecemos servicios administración de alquiler, mantenimiento, seguros etc, asegurando que su propiedad se mantenga en excelente estado y que reciba rendimientos estable
 
 ![casas](https://github.com/allspanish/X-Inmobiliaria/raw/main/images/tom-rumble-7lvzopTxjOU-unsplash.jpg)
 
-**贷款申请:** 我们与金融机构合作，可协助您申请贷款，并提供有竞争力的贷款利率和灵活的还款方式。
+**贷款申请:** 我们与金融机构合作，协助您申请贷款，提供有竞争力的贷款利率和灵活的还款方式。
 
 **Solicitud de préstamo:** Cooperamos con instituciones financieras y podemos ayudarle a solicitar préstamos, ofreciendo tasas de interés competitivas y opciones de pago flexibles.
 
