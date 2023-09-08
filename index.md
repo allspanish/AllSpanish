@@ -13,7 +13,7 @@ title: X Inmobiliaria 爱可思房产
 
 **Compra y venta inmobiliaria** Conocemos profundamente el mercado inmobiliario español, buscando las mejores oportunidades de inversión para usted. 
 
-![key](https://github.com/allspanish/X-Inmobiliaria/raw/main/images/tierra-mallorca-rgJ1J8SDEAY-unsplash.jpg)
+![key](https://github.com/allspanish/X-Inmobiliaria/raw/main/images/infinite-views-XkpuSnWMQu4-unsplash.jpg)
 
 **投后管理:** 您投资房产后可托管，我们可提供租赁管理、维护和保险等，确保您的房产一直保持卓越状态和定期获得投资回报。
 
@@ -37,13 +37,11 @@ title: X Inmobiliaria 爱可思房产
 
 **Servicios migratorios** Gestionamos visados de inversión, visados no lucrativos, y visados para nómadas digitales, etc. Contamos con abogados migratorios con amplia experiencia, y ofrecemos la mejor estrategia migratoria según sus necesidades.
 
-
+![kids](https://github.com/allspanish/X-Inmobiliaria/raw/main/images/bbc-creative-1w20Cysy1cg-unsplash.jpg)
 
 **教育和留学:** 可协助申请入学，确保您的子女获得最佳的教育机会。也可为留学生申请大学、研究生，办理留学签证和居留手续。
 
 **Planificación educativa:**  Ofrecemos asesoramiento en la elección de escuelas y ayuda en la solicitud. 
-
-
 
 
 无论您的需求是投资、定居还是子女教育，我们将为您量身定制服务，帮助您在西班牙实现顺利的资产增值和移民安家计划。欢迎联系我们！
