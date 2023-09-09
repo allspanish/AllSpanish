@@ -53,3 +53,5 @@ Ya sea que sus necesidades sean inversión, reubicación o educación para sus h
 **Email：** info@xinmobiliaria.com
 
 **Add.** Rua da Carreira do Conde 12, 4C. Santiago de Compostela 
+
+**客服微信号：allspanish**
